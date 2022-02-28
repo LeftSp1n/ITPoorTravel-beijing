@@ -242,39 +242,35 @@ emmm，平平无奇的门口，去了直接刷一下就OK
 
 ![image-20220228113011528](README.assets/image-20220228113011528.png)
 
-
-
-
+3. 从桥洞依稀可见的小伙伴以及桥下的小兔子
 
 ![image-20220228114730959](README.assets/image-20220228114730959.png)
 
-
+4. 看起来像是冬日流行的飞机云与阳光下的雪景
 
 ![image-20220228114815717](README.assets/image-20220228114815717.png)
 
+5. 太阳西沉
+
 ![image-20220228115000758](README.assets/image-20220228115000758.png)
 
-
+6. 拉高点亮度 嘿嘿
 
 ![image-20220228115109431](README.assets/image-20220228115109431.png)
 
-
+7. 开灯啦
 
 ![image-20220228115243773](README.assets/image-20220228115243773.png)
 
+![image-20220228124645534](README.assets/image-20220228124645534.png)
 
+8. 门里门外
 
+![image-20220228124756160](README.assets/image-20220228124756160.png)
 
+9. 我
 
-
-
-
-
-
-
-
-
-
+![IMG_3177](README.assets/IMG_3177.JPG)
 
 
 #### 总结
